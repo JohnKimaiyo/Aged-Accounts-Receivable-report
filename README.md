@@ -25,3 +25,5 @@ Qatar Airways Debtors Collection Report @ https://www.youtube.com/watch?v=0Zq-1W
 
 Customer Credit Limit Utilization Report  Qatar Airways @ https://youtu.be/xEsUo2F37Dk
 
+AR Reconciliation Report Qatar Airways  @ https://www.youtube.com/watch?v=Yf-YW9BJ3g4
+
