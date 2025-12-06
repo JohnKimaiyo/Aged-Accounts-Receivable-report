@@ -23,3 +23,5 @@ Debtors Aging Report View demo @ https://youtu.be/O5qYoKPbeVs
 
 Qatar Airways Debtors Collection Report @ https://www.youtube.com/watch?v=0Zq-1W0ykzM
 
+Customer Credit Limit Utilization Report  Qatar Airways @ https://youtu.be/xEsUo2F37Dk
+
