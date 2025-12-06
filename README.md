@@ -16,3 +16,7 @@ Tracking overdue debts
 Highlighting slow payers
 
 Prioritizing collection efforts
+
+
+
+View demo @ https://youtu.be/O5qYoKPbeVs
